@@ -1,7 +1,7 @@
 # Phoom Detuypornworng
 **Aspiring AI Engineer | Computer Science Student | Machine Learning Enthusiast**
 
-📍 Bangkok, Thailand | 📞 +66 83 801 8034 | ✉️ [phoomdetuypornworng@gmail.com](mailto:phoomdetuypornworng@gmail.com) | 🌐 [Portfolio](https://goe84.github.io/portfolio/)
+📍 Bangkok, Thailand | ✉️ [phoomdetuypornworng@gmail.com](mailto:phoomdetuypornworng@gmail.com) | 🌐 [Portfolio](https://goe84.github.io/portfolio/)
 
 ---
 
